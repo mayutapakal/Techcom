@@ -1,0 +1,2 @@
+# Techcom
+getnew idea
